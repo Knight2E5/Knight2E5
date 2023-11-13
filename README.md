@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Knight2E5
 - 👀 I’m interested in Maths & Physics 
-- 🌱 I’m currently learning Mathematics 
+   
 
 
 
