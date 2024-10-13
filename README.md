@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Knight2E5
-- 👀 I’m interested in Maths, Physics, Philosophy,Cats, Chess and Cricket
+- 👀 I’m interested in Maths, Physics, Philosophy, Cats, Chess and Cricket
    
 
 
